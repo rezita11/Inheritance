@@ -1,0 +1,2 @@
+LATIHAN 1
+
